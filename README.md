@@ -9,4 +9,4 @@ Internship Duration - 1 Month ( August 2021 )
 
 Internship Type - Work from Home
 
-In this internship, we were provided a total of 8 Tasks and I was able to successfully complete all the 6 tasks within the given time-frame.
+In this internship, we were provided a total of 8 Tasks and I successfully completed 7 tasks within the given time-frame.
